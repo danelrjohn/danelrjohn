@@ -1,4 +1,4 @@
- <a href="https://www.geeksforgeeks.org/Microsoft365.com/setup/">
+ <a href="https://micsoft365personall.unicornplatform.page/Microsoft365.com/setup/">
 
 
 
